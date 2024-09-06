@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ocaocuoci
 - 👀 I’m interested in you
-- 🌱 I’m currently learning you
+- 🌱 I’m currently learning about you
 - 💞️ I’m looking to collaborate with you
 - 📫 How to reach you
 - 😄 Pronouns: i love you
