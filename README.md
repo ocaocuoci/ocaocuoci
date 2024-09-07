@@ -2,8 +2,8 @@
 - 👀 I’m interested in you
 - 🌱 I’m currently learning about you
 - 💞️ I’m looking to collaborate with you
-- 📫 How to reach you
-- 😄 Pronouns: i love you
+- 📫 How to reach you??
+- 😄 MBTI: C.U.T.E
 - ⚡ Fun fact: i like you
 
 <!---
