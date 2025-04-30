@@ -4,7 +4,6 @@
 - 💞️ I’m looking to collaborate with you
 - 📫 How to reach you??
 - 😄 MBTI: C.U.T.E
-- ⚡ Fun fact: i like you
 
 <!---
 ocaocuoci/ocaocuoci is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
