@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ocaocuoci
 - 👀 I’m interested in you
-- 🌱 I’m currently learning about java, html, css
+- 🌱 I’m currently learning about java, html, css, php, msql, postgreSQL
 - 💞️ I’m looking to collaborate with you
 - 📫 How to reach you??
 - 😄 MBTI: C.U.T.E
